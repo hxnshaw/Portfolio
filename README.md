@@ -4,6 +4,7 @@ I chose the latter,and it was fun working on it. I'm not a big fan of taking per
 (Funny right?).
 
 The photographs are of different sizes,so the positioning mattered alot.
+I made use of HTML and CSS only.
 
 I arranged the photographs systematically to create a beautiful layout.
 The layout is better appreciated on a large screen device such as a desktop or a personal computer.
