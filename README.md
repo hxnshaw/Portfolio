@@ -5,7 +5,7 @@ I chose the latter,and it was fun working on it. I'm not a big fan of taking per
 
 The photographs are of different sizes,so the positioning mattered alot.
 
-I Arranged the photographs systematically to create beautiful layouts.
+I arranged the photographs systematically to create beautiful layouts.
 
 I am a big fan of minimal designs,and you can call me a minimalist, therefore I wanted something simple and effective.
 And that is what I made essentially.
