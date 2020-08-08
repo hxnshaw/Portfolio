@@ -6,6 +6,7 @@ I chose the latter,and it was fun working on it. I'm not a big fan of taking per
 The photographs are of different sizes,so the positioning mattered alot.
 
 I arranged the photographs systematically to create a beautiful layout.
+The layout is better appreciated on a large screen device such as a desktop or a personal computer.
 
 I am a big fan of minimal designs,and you can call me a minimalist, therefore I wanted something simple and effective.
 And that is what I made essentially.
